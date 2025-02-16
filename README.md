@@ -1,1 +1,1 @@
-let's play Simon Says and check your memory,iq and intelligence.
+Let's play Simon Says and check your memory,iq and intelligence.
